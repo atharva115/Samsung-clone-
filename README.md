@@ -9,7 +9,7 @@ here is the glimps of the front page
 ![Screenshot (121)](https://github.com/user-attachments/assets/6ddbd2ea-115f-424a-b104-2e743d20143c)
 ![Screenshot (122)](https://github.com/user-attachments/assets/878e8b86-84c3-4430-87e6-34d4db0f44ab)
 ![Screenshot (123)](https://github.com/user-attachments/assets/d5408d9f-7d74-4207-a094-e2ac86865243)
-"C:\Users\ASUS\Videos\Captures\Samsung BY ATHARVA - Personal - Microsoft​ Edge 2025-01-29 12-16-43.mp4"
+
 
 
 
